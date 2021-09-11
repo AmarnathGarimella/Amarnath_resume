@@ -1,1 +1,0 @@
-# Amarnath_resume
